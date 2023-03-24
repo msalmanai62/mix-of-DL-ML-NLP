@@ -3,7 +3,7 @@
 - 🌱 And currently learning and working on Deep Learning Projects.
 - 💞️ 
 - 📫 How to reach me ...
-  Contact number: +923019476170
+  Contact number: +923257724112
   muhammadsalmanai62@gmail.com
 
 <!---
